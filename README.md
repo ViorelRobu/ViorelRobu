@@ -17,7 +17,6 @@ You can find some other small projects in my profile. Feel free to look over the
 
 I know that I still have a long way to go and I keep on learning. 🌱 
 
-You can reach me on Discord using the contact
-📫 `ViorelRobu#3818` (My login times are irregular) or via [LinkedIn](https://www.linkedin.com/in/viorel-robu/)
+You can reach me on [LinkedIn](https://www.linkedin.com/in/viorel-robu/) 
 
 Best regards!
